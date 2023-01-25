@@ -1,0 +1,2 @@
+# learnigabout
+for myself learnig
